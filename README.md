@@ -35,371 +35,105 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A dispute against the English-popish ceremonies, obtruded vpon the Church of Scotland Wherein not on
+
+1. TO ALL AND EVERY ONE IN THE REFORMED CHVRCHES OF SCOTLAND, ENGLAND, AND IRELAND, vvho love the LORD IESVS, and meane to adhere unto the Reformation of Religion: Grace, Mercy, and Peace, from GOD our Father, and from the Lord. IESVS CHRIST.
+
 #####Body#####
 
-1. CHAP. I.
+1. A Dispute against The English-Popish Ceremonies, OBTRVDED Vpon the CHVRCH of SCOTLAND, Consisting of foure Partes.
 
-    _ DIGRESSION I.
+1. THE ORDER.
 
-    _ DISGRESSION II.
+1. The first parte Against the necessity of the Ceremonies.
 
-    _ DIGRESSION III.
+    _ CHAP. I.
 
-    _ DIGRESSION IV.
+    _ CHAP. II.
 
-1. CHAP. II.
+    _ CHAP. III.
 
-    _ DIGRESSION I.
+    _ CHAP. IV.
 
-    _ DISGRESSION II.
+    _ CHAP. V.
 
-    _ DIGRESSION III.
+    _ CHAP. VI.
 
-    _ DIGRESSION IV.
+    _ CHAP. VII.
 
-1. CHAP. III.
+    _ CHAP. VIII.
 
-    _ DIGRESSION I.
+    _ CHAP. IX.
 
-    _ DISGRESSION II.
+1. The seconde part, Against the expediency of the Ceremonies.
 
-    _ DIGRESSION III.
+    _ CHAP. I.
 
-    _ DIGRESSION IV.
+    _ CHAP. II.
 
-1. CHAP. IV.
+    _ CHAP. III.
 
-    _ DIGRESSION I.
+    _ CHAP. IV.
 
-    _ DISGRESSION II.
+    _ CHAP. V.
 
-    _ DIGRESSION III.
+    _ CHAP. VI.
 
-    _ DIGRESSION IV.
+    _ CHAP. VII.
 
-1. CHAP. V.
+    _ CHAP. VIII.
 
-    _ DIGRESSION I.
+    _ CHAP. IX.
 
-    _ DISGRESSION II.
+1. The third Parte, Against the lavvfulnesse of the Ceremonies.
 
-    _ DIGRESSION III.
+    _ CHAP. 1.
 
-    _ DIGRESSION IV.
+    _ CHAP. II.
 
-1. CHAP. VI.
+    _ CHAP. III.
 
-    _ DIGRESSION I.
+    _ CHAP. IV.
 
-    _ DISGRESSION II.
+    _ CHAP. V.
 
-    _ DIGRESSION III.
+    _ CHAP. VI.
 
-    _ DIGRESSION IV.
+    _ CHAP. VII.
 
-1. CHAP. VII.
+    _ CHAP. VIII.
 
-    _ DIGRESSION I.
+      * DIGRESSION I.
 
-    _ DISGRESSION II.
+      * DISGRESSION II.
 
-    _ DIGRESSION III.
+      * DIGRESSION III.
 
-    _ DIGRESSION IV.
+      * DIGRESSION IV.
 
-1. CHAP. VIII.
+    _ CHAP. IX.
 
-    _ DIGRESSION I.
+1. The fourth part Against the Indifferency of the Ceremonies.
 
-    _ DISGRESSION II.
+    _ CHAP. 1.
 
-    _ DIGRESSION III.
+    _ CHAP. II.
 
-    _ DIGRESSION IV.
+    _ CHAP. III.
 
-1. CHAP. IX.
+    _ CHAP. IV.
 
-    _ DIGRESSION I.
+    _ CHAP. V.
 
-    _ DISGRESSION II.
+    _ CHAP. VI.
 
-    _ DIGRESSION III.
+    _ CHAP. VII.
 
-    _ DIGRESSION IV.
+    _ CHAP. VIII.
 
-1. CHAP. I.
-
-    _ DIGRESSION I.
-
-    _ DISGRESSION II.
-
-    _ DIGRESSION III.
-
-    _ DIGRESSION IV.
-
-1. CHAP. II.
-
-    _ DIGRESSION I.
-
-    _ DISGRESSION II.
-
-    _ DIGRESSION III.
-
-    _ DIGRESSION IV.
-
-1. CHAP. III.
-
-    _ DIGRESSION I.
-
-    _ DISGRESSION II.
-
-    _ DIGRESSION III.
-
-    _ DIGRESSION IV.
-
-1. CHAP. IV.
-
-    _ DIGRESSION I.
-
-    _ DISGRESSION II.
-
-    _ DIGRESSION III.
-
-    _ DIGRESSION IV.
-
-1. CHAP. V.
-
-    _ DIGRESSION I.
-
-    _ DISGRESSION II.
-
-    _ DIGRESSION III.
-
-    _ DIGRESSION IV.
-
-1. CHAP. VI.
-
-    _ DIGRESSION I.
-
-    _ DISGRESSION II.
-
-    _ DIGRESSION III.
-
-    _ DIGRESSION IV.
-
-1. CHAP. VII.
-
-    _ DIGRESSION I.
-
-    _ DISGRESSION II.
-
-    _ DIGRESSION III.
-
-    _ DIGRESSION IV.
-
-1. CHAP. VIII.
-
-    _ DIGRESSION I.
-
-    _ DISGRESSION II.
-
-    _ DIGRESSION III.
-
-    _ DIGRESSION IV.
-
-1. CHAP. IX.
-
-    _ DIGRESSION I.
-
-    _ DISGRESSION II.
-
-    _ DIGRESSION III.
-
-    _ DIGRESSION IV.
-
-1. CHAP. 1.
-
-    _ DIGRESSION I.
-
-    _ DISGRESSION II.
-
-    _ DIGRESSION III.
-
-    _ DIGRESSION IV.
-
-1. CHAP. II.
-
-    _ DIGRESSION I.
-
-    _ DISGRESSION II.
-
-    _ DIGRESSION III.
-
-    _ DIGRESSION IV.
-
-1. CHAP. III.
-
-    _ DIGRESSION I.
-
-    _ DISGRESSION II.
-
-    _ DIGRESSION III.
-
-    _ DIGRESSION IV.
-
-1. CHAP. IV.
-
-    _ DIGRESSION I.
-
-    _ DISGRESSION II.
-
-    _ DIGRESSION III.
-
-    _ DIGRESSION IV.
-
-1. CHAP. V.
-
-    _ DIGRESSION I.
-
-    _ DISGRESSION II.
-
-    _ DIGRESSION III.
-
-    _ DIGRESSION IV.
-
-1. CHAP. VI.
-
-    _ DIGRESSION I.
-
-    _ DISGRESSION II.
-
-    _ DIGRESSION III.
-
-    _ DIGRESSION IV.
-
-1. CHAP. VII.
-
-    _ DIGRESSION I.
-
-    _ DISGRESSION II.
-
-    _ DIGRESSION III.
-
-    _ DIGRESSION IV.
-
-1. CHAP. VIII.
-
-    _ DIGRESSION I.
-
-    _ DISGRESSION II.
-
-    _ DIGRESSION III.
-
-    _ DIGRESSION IV.
-
-1. CHAP. IX.
-
-    _ DIGRESSION I.
-
-    _ DISGRESSION II.
-
-    _ DIGRESSION III.
-
-    _ DIGRESSION IV.
-
-1. CHAP. 1.
-
-    _ DIGRESSION I.
-
-    _ DISGRESSION II.
-
-    _ DIGRESSION III.
-
-    _ DIGRESSION IV.
-
-1. CHAP. II.
-
-    _ DIGRESSION I.
-
-    _ DISGRESSION II.
-
-    _ DIGRESSION III.
-
-    _ DIGRESSION IV.
-
-1. CHAP. III.
-
-    _ DIGRESSION I.
-
-    _ DISGRESSION II.
-
-    _ DIGRESSION III.
-
-    _ DIGRESSION IV.
-
-1. CHAP. IV.
-
-    _ DIGRESSION I.
-
-    _ DISGRESSION II.
-
-    _ DIGRESSION III.
-
-    _ DIGRESSION IV.
-
-1. CHAP. V.
-
-    _ DIGRESSION I.
-
-    _ DISGRESSION II.
-
-    _ DIGRESSION III.
-
-    _ DIGRESSION IV.
-
-1. CHAP. VI.
-
-    _ DIGRESSION I.
-
-    _ DISGRESSION II.
-
-    _ DIGRESSION III.
-
-    _ DIGRESSION IV.
-
-1. CHAP. VII.
-
-    _ DIGRESSION I.
-
-    _ DISGRESSION II.
-
-    _ DIGRESSION III.
-
-    _ DIGRESSION IV.
-
-1. CHAP. VIII.
-
-    _ DIGRESSION I.
-
-    _ DISGRESSION II.
-
-    _ DIGRESSION III.
-
-    _ DIGRESSION IV.
-
-1. CHAP. IX.
-
-    _ DIGRESSION I.
-
-    _ DISGRESSION II.
-
-    _ DIGRESSION III.
-
-    _ DIGRESSION IV.
+    _ CHAP. IX.
 
 #####Back#####
-A dispute against the English-popish ceremonies, obtruded vpon the Church of Scotland Wherein not on
+Faultes escaped in Part. 3.Pag.Lin.FaultesCorrections7418shundshould7515diragationèdivagatione771Sac
 **Types of content**
 
   * There are 9 **verse** lines!
